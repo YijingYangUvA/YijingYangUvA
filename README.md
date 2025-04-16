@@ -17,4 +17,4 @@ Curious, warm, pragmatic, and laser-focused when it matters 🔍
    • I fall asleep to Lana Del Rey's voice 🎧  
    • I enjoy solving Rubik’s Cubes and playing Weiqi (Go) — amateur 3 dan 🧩  
 
-Thanks for stopping by!
+Thanks for stopping by, and if any of this resonates with you, let’s build something meaningful together 🌸
