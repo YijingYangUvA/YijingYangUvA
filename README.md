@@ -1,7 +1,7 @@
 ## About me
 
-I’m Yijing (Olivia), a Communication Science Research Master’s student @ University of Amsterdam (UvA) 🇳🇱
-With an undergrad in Advertising from Fudan University and two years of Economics training,
+I’m Yijing (Olivia), a Communication Science Research Master’s student @ University of Amsterdam (UvA) 🇳🇱  
+With an undergrad in Advertising from Fudan University and two years of Economics training,  
 I’m now exploring the intersection of data storytelling, computational methods, and digital media.  
 Curious, warm, pragmatic, and laser-focused when it matters.
 
