@@ -11,11 +11,6 @@ Curious, warm, pragmatic, and laser-focused when it matters.
 - 🤔 I’m looking for help with: building a portfolio that’s as visually stunning as it is technically solid.
 - 💬 Ask me about: Tang and Song dynasty poetry, *A Song of Ice and Fire*, protein-packed cooking.
 - 📫 How to reach me: [LinkedIn](https://www.linkedin.com/in/yijing-yang-fudan/) or just drop a message here.
-- ⚡ Fun facts:  
-   • I walk 10K+ steps a day 🚶‍♀️  
-   • I eat the spiciest food without flinching 🌶️  
-   • I fall asleep to Lana Del Rey's voice 🎧  
-   • I enjoy solving Rubik’s Cubes and playing Weiqi (Go) — amateur 3 dan ⚫⚪
 
 Thanks for stopping by, and if any of this resonates with you, let’s build something meaningful together!
 
