@@ -1,8 +1,8 @@
 ## About me
 
-I’m Olivia (Yijing), a Communication Science Research Master’s student @ University of Amsterdam
-With an undergrad in Advertising from Fudan University and two years of Economics training,  
-I thrive in exploring the intersection of data storytelling, computational methods, and digital media.  
+I’m Olivia (Yijing), a Communication Science Research Master’s student @ University of Amsterdam.
+
+With an undergrad in Advertising from Fudan University and two years of Economics training,  I thrive in exploring the intersection of data storytelling, computational methods, and digital media.  
 
 ## Featured Projects
 ### [AH for All: A/B Test on Inclusive Email Design](https://drive.google.com/file/d/1tK2ACZEiPk9baz4nWBW1Iv90gidyRI_m/view?usp=sharing)  
